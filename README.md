@@ -1,1 +1,0 @@
-# Atipat_Profile
